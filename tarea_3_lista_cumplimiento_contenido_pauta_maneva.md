@@ -17,7 +17,7 @@ Maneva debe comunicarse como una rutina cosmetica capilar que ayuda a fortalecer
 ### Enfoque permitido
 
 - Hablar de rutina, constancia, fortalecimiento, cuidado, humectacion, brillo, suavidad, elasticidad, apariencia de cabello mas sano y acompanamiento capilar.
-- Mencionar que contiene romero, lupulo, alfalfa, trebol dulce y aminoacidos.
+- Mencionar que contiene romero, lupulo, alfalfa, trebol dulce, aminoacidos y aceite de semilla de cannabis.
 - Explicar modo de uso: aplicar sobre el cuero cabelludo, masajear, dejar aplicado, agitar antes de usar, preferiblemente en la noche, minimo 3 veces por semana.
 - Comunicar que los resultados pueden variar por constancia, tipo de cabello, edad, dano previo, procesos quimicos, hidratacion, exposicion al sol y condicion inicial del cabello.
 - Indicar que no es medicamento y que no reemplaza consulta profesional.
